@@ -9,4 +9,3 @@ Setting goals is easy, but taking action is hard. **DoerAI** bridges the gap by 
 ✅ **Get Things Done** – No more overthinking, just start doing!  
 
 Stop procrastinating. Start achieving. **Be a Doer.** 🚀  
-
